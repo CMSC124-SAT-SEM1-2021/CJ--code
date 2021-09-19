@@ -1,0 +1,1 @@
+I am Christine Joy Garcia, CJ for short. I am currently in Olongapo. I chose this course because of its job opportunities. 
